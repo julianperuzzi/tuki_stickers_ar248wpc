@@ -1,1 +1,0 @@
-# tuki_stickers_ar248wpc
